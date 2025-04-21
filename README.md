@@ -2,4 +2,4 @@
 - 👀 I’m interested in creating stuff about devices
 - 🌱 I’m currently learning linux and languages 
 - 📫 How to reach me @kai.xoo_ on any platforms
-- ⚡ Fun fact: im lazy
+- ⚡ Fun fact: im lazy, yeah that's the fun fact ;)
