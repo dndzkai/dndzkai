@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dndzkai
+- 👀 I’m interested in creating stuff about devices
+- 🌱 I’m currently learning linux/c++ languages 
+- 📫 How to reach me @kai.xoo_ on any platforms
+- ⚡ Fun fact: im lazy
